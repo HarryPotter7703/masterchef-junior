@@ -14,4 +14,4 @@ RECIPE :
 • See the pizza every 5 minutes
 • Only take it out when the base becomes brownish and the cheese becomes golden.
 • And your pizza is ready !
-• Congratulations ! You made your own pizza ! 🎉🎉🎉🎉🎉🎉
+• Congratulations ! You made your own pizza ! 🎉🎉🎉🎉🎉🎉🎉
